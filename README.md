@@ -1,6 +1,7 @@
 
 
 
+
 # JC's Reading/Watching List
 
 A record for myself, and a resource for others, of all the books, videos, podcasts, movies, etc. that I've gained some knowledge from. 
@@ -13,14 +14,11 @@ My goals:
 
 If you have any suggestions or want to discuss any of the books, hit me up on IG, [@kingjcdy](https://www.instagram.com/kingjcdy/)!
 
-* [Upcoming](#upcoming)
 * [Ongoing](#ongoing)
 * [Completed - 2021](#2021)
 * [Completed - 2020](#2020)
-* [Completed - 2019](#2019)
-
-# Upcoming
-**[Born a Crime](https://www.amazon.com/Born-Crime-Stories-African-Childhood-ebook/dp/B01DHWACVY)** by Trevor Noah
+* [Completed - 2019](#2019) 
+* [Upcoming](#upcoming)
 
 # Ongoing
 
@@ -52,3 +50,9 @@ If you have any suggestions or want to discuss any of the books, hit me up on IG
 
 **[The Case For a Creator](https://www.amazon.com/Case-Creator-Lee-Strobel/dp/0310242096)** by Lee Strobel
 > _Read a few pages of this book daily as part of my commute to work, the spring semester I started attending the Gracepoint fellowship for a time while I still lived at Berkeley._
+
+# Upcoming
+
+**[Born a Crime](https://www.amazon.com/Born-Crime-Stories-African-Childhood-ebook/dp/B01DHWACVY)** by Trevor Noah
+
+**[Talking to Strangers](https://www.amazon.com/Talking-Strangers-Should-about-People/dp/0316478520)** by Malcolm Gladwell
