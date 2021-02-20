@@ -22,17 +22,18 @@ If you have any suggestions or want to discuss any of the books, hit me up on IG
 
 # Ongoing
 
-![10/153](https://progress-bar.dev/7) **[The Subtle Art of Not Giving a F*ck](https://www.amazon.com/Subtle-Art-Not-Giving-Counterintuitive/dp/0062457713)** by Mark Manson 
+![20/153](https://progress-bar.dev/13) **[The Subtle Art of Not Giving a F*ck](https://www.amazon.com/Subtle-Art-Not-Giving-Counterintuitive/dp/0062457713)** by Mark Manson 
 
 ![63/142](https://progress-bar.dev/44) **[The Power of Now](https://www.amazon.com/Power-Now-Guide-Spiritual-Enlightenment-ebook/dp/B002361MLA)** by Eckhart Tolle 
-
-**[The Good Place](https://www.netflix.com/title/80113701)** on Netflix
 
 **[Merlin](https://www.netflix.com/title/70142436)** on Netflix
 
 **[A Series of Unfortunate Events](https://www.netflix.com/title/80050008)** on Netflix
 
 # 2021
+
+**[The Good Place](https://www.netflix.com/title/80113701)** on Netflix
+> Thought-provoking and unpredictable series. One of my favorites. Makes me think about how we should be judged as "good/righteous vs bad/unrighteous". Does intention or outcome matter more in terms of morality? Should people be given a chance after life on earth? Does an eternal life of bliss lose all meaning because the value of life is tied to its impermanence?
 
 **[Alice in Borderland](https://www.netflix.com/title/80200575)** on Netflix
 > _Watched season 1 with the roommats as part of our weekly movie afternoons. The show is thrilling, unpredictable, and full of uncovered mysteries, but it ended on a cliffhanger so I'll have to wait til season 2 to be released for (hopefully) some closure. I've been inspired to learn Japanese on Duolingo, Lingodeer, and YouTube for fun!_
