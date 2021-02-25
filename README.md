@@ -2,6 +2,7 @@
 
 
 
+
 # JC's Reading/Watching List
 
 A record for myself, and a resource for others, of all the books, videos, podcasts, movies, etc. that I've gained some knowledge from. 
@@ -32,8 +33,11 @@ If you have any suggestions or want to discuss any of the books, hit me up on IG
 
 # 2021
 
+**[TED Talk: Are We In Control of our Own Decisions?](https://www.ted.com/talks/dan_ariely_are_we_in_control_of_our_own_decisions)** by Dan Ariely
+> _Optical illusions are a metaphor for "decision illusions" or "cognitive illusions" in behavioral economics. The person who designs the form at the DMV for organ donations can influence/dictate our behavior/likelihood to accept - it is the illusion of decision. "We pick what was chosen for us". Our minds are susceptible to influences from external forces (e.g. defaults, the options presented to us, etc) - in other words, our decision-making is predictably irrational._
+
 **[The Good Place](https://www.netflix.com/title/80113701)** on Netflix
-> Thought-provoking and unpredictable series. One of my favorites. Makes me think about how we should be judged as "good/righteous vs bad/unrighteous". Does intention or outcome matter more in terms of morality? Should people be given a chance after life on earth? Does an eternal life of bliss lose all meaning because the value of life is tied to its impermanence?
+> _Thought-provoking and unpredictable series. One of my favorites. Makes me think about how we should be judged as "good/righteous vs bad/unrighteous". Does intention or outcome matter more in terms of morality? Should people be given a chance after life on earth? Does an eternal life of bliss lose all meaning because the value of life is tied to its impermanence?_
 
 **[Alice in Borderland](https://www.netflix.com/title/80200575)** on Netflix
 > _Watched season 1 with the roommats as part of our weekly movie afternoons. The show is thrilling, unpredictable, and full of uncovered mysteries, but it ended on a cliffhanger so I'll have to wait til season 2 to be released for (hopefully) some closure. I've been inspired to learn Japanese on Duolingo, Lingodeer, and YouTube for fun!_
