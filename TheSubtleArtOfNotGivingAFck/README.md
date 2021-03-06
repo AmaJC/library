@@ -1,10 +1,12 @@
 
 
 
+
 # The Subtle Art of Not Giving a F*ck - Notes
 
-* [Chapter 1](#chapter-1-dont-try)
-* [Chapter 2](#chapter-2-happiness-is-a-problem)
+* [Chapter 1](#chapter-1---dont-try)
+* [Chapter 2](#chapter-2---happiness-is-a-problem)
+* [Chapter 3](#chapter-3---you-are-not-special)
 
 ## Chapter 1 - Don't Try
 > "The world is constantly telling you that the path to a better life is more, more, more—buy more, own more, make more, fuck more, be more. You are constantly bombarded with messages to give a fuck about everything, all the time." (pg. 7)
@@ -34,3 +36,18 @@
 * In life, suffering is inevitable. Failure, hardship, loss, death. We need to learn to be comfortable with life's shit, and empower ourselves to use our pain/suffering/problems as a means for progress and growth.
 
 ## Chapter 2 - Happiness is a Problem
+> "We suffer for the simple reason that suffering is biologically useful. It is nature’s preferred agent for inspiring change." (pg. 23)
+* Buddhism centers around the realization that life itself is a form of suffering.
+	* "Pain and loss are inevitable and we should let go of trying to resist them."
+* Biologically, we benefit from suffering, dissatisfaction, and insecurity, because that drives us to act to improve our chances of survival. Suffering is not a bug, but a feature of our humanity. Pain teaches us to adhere to our own physical limitations - what's good/safe vs bad/harmful.
+> "Life is essentially an endless series of problems... Don’t hope for a life without problems. There’s no such thing. Instead, hope for a life full of good problems." (pg. 24)
+* Solving problems makes us happy. "True happiness occurs only when you find the problems you enjoy having and enjoy solving." 
+* Negative emotions serve a purpose. While good emotions are rewards for having done the right action, negative emotions are a _call to action_ - you're supposed to do something. Negative emotions can help us solve problems.
+* Hedonic treadmill - we work to improve our life situation but end up feeling the same, and "quickly return to a relatively stable level of happiness"
+> "Because happiness requires struggle. It grows from problems... Real, serious, lifelong fulfillment and meaning have to be earned through the choosing and managing of our struggles." (pg. 29)
+* The easy question is "What do you want in life?" or "What do you want to enjoy?". The hard question that matters is "What pain are you willing to sustain?" or "What suffering will you choose to go through to achieve success and happiness?"
+> "I wanted the reward and not the struggle. I wanted the result and not the process. I was in love with not the fight but only the victory." (pg. 31)
+* The author dreamt of becoming a rockstar and fantasized about it for half his life. But though he was in love with the result, he wasn't in love with the process - and so he failed.
+* Who you are is defined by what you’re willing to struggle for. Our struggles determine our successes.
+
+## Chapter 3 - You Are Not Special
