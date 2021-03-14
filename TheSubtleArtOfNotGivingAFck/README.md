@@ -7,6 +7,7 @@
 * [Chapter 1](#chapter-1---dont-try)
 * [Chapter 2](#chapter-2---happiness-is-a-problem)
 * [Chapter 3](#chapter-3---you-are-not-special)
+* [Chapter 4](#chapter-4---the-value-of-suffering)
 
 ## Chapter 1 - Don't Try
 > "The world is constantly telling you that the path to a better life is more, more, more—buy more, own more, make more, fuck more, be more. You are constantly bombarded with messages to give a fuck about everything, all the time." (pg. 7)
@@ -51,3 +52,26 @@
 * Who you are is defined by what you’re willing to struggle for. Our struggles determine our successes.
 
 ## Chapter 3 - You Are Not Special
+
+* In the 1960's, research found that people who have high self-esteem (positive thoughts/feelings about oneself) was linked to better performance (e.g. academic and career success, lower crime, etc). 
+	* Self-esteem practices began to manifest in the 1970s - grade inflation, participation awards, pastors preaching "we are all special in God's eyes", and more.
+	* BUT, teaching people to feel good about themselves doesn't guarantee real success. "It turns out that adversity and failure are actually useful and even necessary for developing strong-minded and successful adults." (pg. 34)
+	* Unfounded self-confidence leads to delusional **entitlement**.
+* Entitled people "feels as though they deserves good things without actually earning them."
+	* "They become so fixated on feeling good about themselves that they manage to delude themselves into believing that they are accomplishing great things even when they’re not." (pg. 34)
+	* Entitled people view everything that happens to them as either an affirmation of their greatness, or a threat to it. They reinforce their entitlement by distorting what is around them to uplift their sense of superiority (e.g. accusing that people who question their accomplishments/greatness are just jealous)
+	* Entitled behavior can take two forms:
+		1. I’m awesome and the rest of you all suck, so I deserve special treatment. 
+		2. I suck and the rest of you are all awesome, so I deserve special treatment. (e.g. victim mentality)
+> "A person who actually has a high self-worth is able to look at the negative parts of his character frankly—“Yes, sometimes I’m irresponsible with money,” “Yes, sometimes I exaggerate my own successes,” “Yes, I rely too much on others to support me and should be more self-reliant”—and then acts to improve upon them." (pg. 36)
+* Self-esteem is linked to your ability to acknowledge your shortcomings, rather than to delude yourself into being blind to any weaknesses or room for improvement.
+> "This flood of extreme information has conditioned us to believe that exceptionalism is the new normal. And because we’re all quite average most of the time, the deluge of exceptional information drives us to feel pretty damn insecure and desperate, because clearly we are somehow not good enough." (pg. 44)
+* Entitlement in today's age may be fueled by social media and technology as they enable our insecurities to run amok.
+	* Despite the vast majority of life being average and unextraordinary, the Internet, YouTube, Facebook, etc publicize the exceptional and extraordinary.
+	* **Mass-media-driven exceptionalism** - the way in which the pervasiveness of technology and mass marketing makes it easy for us to establish unrealistic standards for ourselves, because we are overexposed to the exreme standards we fail to live up to.
+> "The Internet has not just open-sourced information; it has also open-sourced insecurity, self-doubt, and shame" (pg. 45)
+* Our culture tells us that we're all destined to be extraordinary - that we deserve greatness. Since being "average" is considered failure, some people resort to being at the low end of the bell curve (oppression olympics) to prove they are the most victimized/miserable.
+* The truly exceptional people are those that realize that they are *not* exceptional, and use that knowledge to constantly pursue self-improvement. People who become great first realize that they're not great, and that they can be so much better.
+	* We should embrace our mundane existence - We are not special, and that's okay. Then we can shed off the pressure and self-imposed expectations to be amazing and extraordinary, and appreciate the ordinary things in life.
+
+## Chapter 4 - The Value of Suffering
