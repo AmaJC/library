@@ -75,3 +75,20 @@
 	* We should embrace our mundane existence - We are not special, and that's okay. Then we can shed off the pressure and self-imposed expectations to be amazing and extraordinary, and appreciate the ordinary things in life.
 
 ## Chapter 4 - The Value of Suffering
+* The chapter begins with a story about two Japanese men who both suffered for seemingly useless or destructive causes. 
+	* A Japanese soldier, Hiroo Onoda, who was ordered to never surrender to the Americans on the island of Lubang in the Philippines, who continued to live and fight in the jungle even years after WWII ended.
+	* A Japanese adventurer who traveled the world, discovered Onoda, and years later died in the Himalayas while searching for the yeti.
+> "To both men, their suffering meant something; it fulfilled some greater cause. And because it meant something, they were able to endure it, or perhaps even enjoy it." (pg. 50)
+* Since suffering in life is unavoidable, instead of working to end suffering, we should answer "Why are we suffering - for what purpose?"
+* Suffering can be endured when the purpose has meaning to you.
+> "Self-awareness is like an onion." (pg. 51)
+* Layer 1 of the self-awareness onion: a simple understanding of one’s emotions.
+* Layer 2: an ability to ask why we feel certain emotions.
+	* Answering _why_ is often difficult and takes a lot of practice
+	* Usually uncovers what we consider as success/failure
+* Layer 3: our personal values.
+	* Why do I consider this to be success/failure? 
+	* How am I choosing to measure myself? 
+	* By what standard am I judging myself and everyone around me?
+	* Our values are the basis for all our thoughts, emotions, and perceptions of ourselves and our situations. What's most important is not the particular situation's details, but instead how we measure and value it.
+> "We get to control what our problems mean based on how we choose to think about them, the standard by which we choose to measure them." (pg. 55)
