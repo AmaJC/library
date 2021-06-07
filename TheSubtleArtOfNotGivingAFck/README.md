@@ -128,4 +128,17 @@ Common values that create unsolvable problems
 > "What “self-improvement” is really about: prioritizing better values, choosing better things to give a fuck about. Because when you give better fucks, you get better problems. And when you get better problems, you get a better life."
 
 ## Chapter 5 - You Are Always Choosing
-* T
+> "When we feel we are choosing our own problems, we are empowered. When we feel that our problems are being forced upon us against our will, we feel victimized and miserable." (pg. 66)
+* Realizing that we individually are responsible for how we interpret what happens to us and how we respond, regardless of the external circumstances, allows for personal improvement and growth
+* We are always responsible for our experiences - how we interpret and respond to events in our lives
+	* Often, the same event can be good or bad depending on the metric we use.
+	*	Choosing to take responsibility in our lives gives us more power to exercise. 
+	*	Accepting responsibility for our problems is the first step to solving them.
+		*	Taking responsibility for our successes isn't nearly as valuable as taking responsibility for our problems - that's where real improvement comes from
+*	Responsibility != fault - many hesitate to take responsibility for their problems because they think it means admitting fault, but they aren't the same
+	*	Fault is past tense (choices have been made already)
+	*	Responsibility is present tense (the choices you're currently making)
+	*	Many people may be to _blame_ for your unhappiness, but you alone are responsible for your unhappiness. We always can choose how to see/react to/value things
+> "People who consistently make the best choices in the situations they’re given are the ones who eventually come out ahead in poker, just as in life. And it’s not necessarily the people with the best cards." (pg. 77)
+* We are all dealt cards in life, some better than others. But the choices we make ultimately determine the outcome - we are responsible to make the best choice we can, regardless of our circumstances, regardless of who's at fault.
+* 
