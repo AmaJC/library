@@ -2,6 +2,7 @@
 
 
 
+
 # The Subtle Art of Not Giving a F*ck - Notes
 
 * [Chapter 1](#chapter-1---dont-try)
@@ -92,3 +93,39 @@
 	* By what standard am I judging myself and everyone around me?
 	* Our values are the basis for all our thoughts, emotions, and perceptions of ourselves and our situations. What's most important is not the particular situation's details, but instead how we measure and value it.
 > "We get to control what our problems mean based on how we choose to think about them, the standard by which we choose to measure them." (pg. 55)
+* Naturally, we measure ourselves against others. The question is not whether we evaluate/compare ourselves to others, but by _what standard_ we measure ourselves.
+* If we measure ourselves by "I don't want to work for a boss I hate" or "I want to earn enough money to send my kid to a good school", then being a famous rockstar would be unimaginably successful. But if we measure ourselves as "I want to be more popular and successful than ____", then we can have it all and still feel like a failure.
+* To change how we view our problems, we must change how we measure failure/success.
+
+**Shitty Values**
+Common values that create unsolvable problems
+1. **Pleasure** - research shows that those who focus on superficial pleasures have more anxiety, emotional instability, and rates of depression
+   a. Pleasure is what people often fixate on, it numbs and distracts us.
+   b. Pleasure alone isn't sufficient - it is not the cause of happiness, it is the effect. "If you get the other stuff right (the other values and metrics), then pleasure will naturally occur as a by-product."
+2. **Material Success** - measuring our self worth on things like how much money you make, the car you drive, how big your house is, etc. 
+	a. Research shows that after basic needs are met (shelter, food, etc), the correlation between happiness and worldly success approaches zero.
+	b. An extra 10K may mean a lot if you're starving in India, but as a middle-class citizen in California, killing yourself working overtime for an extra 10K won't affect much overall.
+	c. Overvaluing material success can lead to prioritizing it over more important values, like honesty/nonviolence/compassion.
+3. **Always Being Right** - measuring our self worth based on always being right will prevent us from being able to learn from our mistakes, take on new perspectives, and empathize with others
+   a. It's more helpful to assume you're ignorant, to promote a constant state of learning and growth.
+   > "Our brains are inefficient machines. We consistently make poor assumptions, misjudge probabilities, misremember facts, give in to cognitive biases, and make decisions based on our emotional whims. As humans, we’re wrong pretty much constantly, so if your metric for life success is to be right—well, you’re going to have a difficult time rationalizing all of the bullshit to yourself." 
+4. **Staying Positive** - always looking at life situations in a positive light may mean denying negative emotions - constant positivity can be a form of avoidance.
+	a. Staying positive all the time denies the existence of life's problems, which removes the chance of solving those problems to generate happiness
+	b. Negative emotions are a necessary component of emotional health
+	c. Negative emotions should be expressed (1) in a socially acceptable, healthy manner, and (2) in a way that aligns with your values
+> “One day, in retrospect, the years of struggle will strike you as the most beautiful.”
+* This is why the above values are unideal. Some of the greatest moments of one’s life are **not** pleasant, **not** successful, **not** known, and **not** positive.
+	 
+**Defining Good/Bad Values**
+* Good values are reality-based, socially constructive, immediate, and controllable
+	* E.g. Honesty - you have complete control over this, it benefits others (although may be unpleasant)
+	* Innovation, vulnerability, standing up for oneself, standing up for others, self-respect, curiosity, charity, humility, creativity.
+	* These values are achieved internally
+* Bad values are superstitious, socially destructive, not immediate, or uncontrollable.
+	* E.g. Popularity - you have no control over this, isn't realistic (feeling popular or unpopular without knowing how everyone thinks of you)
+	* Dominance through manipulation or violence, indiscriminate fucking, feeling good all the time, always being the center of attention, not being alone, being liked by everybody, being rich for the sake of being rich.
+	* These values are generally reliant on external events
+> "What “self-improvement” is really about: prioritizing better values, choosing better things to give a fuck about. Because when you give better fucks, you get better problems. And when you get better problems, you get a better life."
+
+## Chapter 5 - You Are Always Choosing
+* T
