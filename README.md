@@ -23,7 +23,7 @@ If you have any suggestions or want to discuss any of the books, hit me up on IG
 
 # Ongoing
 
-![54/153](https://progress-bar.dev/35) **[The Subtle Art of Not Giving a F*ck](https://www.amazon.com/Subtle-Art-Not-Giving-Counterintuitive/dp/0062457713)** by Mark Manson 
+![80/153](https://progress-bar.dev/52) **[The Subtle Art of Not Giving a F*ck](https://www.amazon.com/Subtle-Art-Not-Giving-Counterintuitive/dp/0062457713)** by Mark Manson 
 
 ![63/142](https://progress-bar.dev/44) **[The Power of Now](https://www.amazon.com/Power-Now-Guide-Spiritual-Enlightenment-ebook/dp/B002361MLA)** by Eckhart Tolle 
 

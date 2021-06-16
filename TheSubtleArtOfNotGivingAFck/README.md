@@ -1,8 +1,3 @@
-
-
-
-
-
 # The Subtle Art of Not Giving a F*ck - Notes
 
 * [Chapter 1](#chapter-1---dont-try)
@@ -141,4 +136,7 @@ Common values that create unsolvable problems
 	*	Many people may be to _blame_ for your unhappiness, but you alone are responsible for your unhappiness. We always can choose how to see/react to/value things
 > "People who consistently make the best choices in the situations they’re given are the ones who eventually come out ahead in poker, just as in life. And it’s not necessarily the people with the best cards." (pg. 77)
 * We are all dealt cards in life, some better than others. But the choices we make ultimately determine the outcome - we are responsible to make the best choice we can, regardless of our circumstances, regardless of who's at fault.
-* 
+* **Victimhood Chic** - a tactic used to push responsibility off of one's self through blame on others as being at fault for their oppression
+* **Outrage Porn** - media that broadcasts mildly offensive content to generate outrage 
+	* How to approach the media: with a healthy dose of skepticism. We should avoid painting those who disagree with us with a broad brush.
+* There will be uncertainty, discomfort, and resistance (internal and external) as we reassess and change our values. This is normal.
