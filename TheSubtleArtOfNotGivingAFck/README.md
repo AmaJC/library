@@ -140,3 +140,34 @@ Common values that create unsolvable problems
 * **Outrage Porn** - media that broadcasts mildly offensive content to generate outrage 
 	* How to approach the media: with a healthy dose of skepticism. We should avoid painting those who disagree with us with a broad brush.
 * There will be uncertainty, discomfort, and resistance (internal and external) as we reassess and change our values. This is normal.
+
+## Chapter 6 - You're Wrong About Everything (But So Am I)
+* As our Present self can look back at our Past self and point out flaws/mistakes, our Future self will look at our Present self and do the same thing. This is good, and is a sign of continued growth.
+> "Growth is an endlessly iterative process." (pg. 83)
+* We are always going to be wrong - about ourselves, others, society, the world, etc.
+* Instead of finding the "perfect" right answer, we should continue to learn so every day we "chip away at the ways we're wrong today" to become a little less wrong tomorrow.
+* Everyone has different life circumstances, so what's "right" for them and how their lives should be lived could be different from ours.
+	* Even as we grow older, the "correct" way to live will change and evolve.
+> "Instead of looking to be right all the time, we should be looking for how we’re wrong all the time. Because we are." (pg. 84)
+*	Admitting when we are wrong -> opens up the opportunity for change and growth
+*	Our memory is unreliable - we may remember an experience slightly differently a few days later, and come to believe in mental filled-in gaps that are not real.
+	*	We all do this - the brain is designed to be efficient, not accurate. Our brain is biased - influenced by what we believe and have already experienced
+	*	Maybe we should trust ourselves LESS rather than "going with your gut". 
+	*	"Our hearts and minds are so unreliable, maybe we should be questioning our intentions. and motivations _more_."
+* Since we're wrong all the time, we should challenge our own beliefs with self-skepticism.
+> "The more you try to be certain about something, the more uncertain and insecure you will feel. But the converse is true as well: the more you embrace being uncertain and not knowing, the more comfortable you will feel in knowing what you don’t know." (pg. 95)
+* Benefits of uncertainty
+	* Removes the judgment of others (benefit of the doubt)
+	* Prevents us from using stereotypes and biases to view others
+	* Relieves us of judgment of ourselves - remain uncertain of who we are and what we can do, and be open to finding out through experience.
+	* Admitting we don't know allows us to grow
+
+**Manson's Law of Avoidance**
+* Manson's Law of Avoidance - The more something threatens your identity, the more you will avoid it.
+	* People are often afraid of success just as much as they are afraid of failure - because it threatens who they believe themselves to be.
+	* e.g. being an "Artist Nobody Likes" is far scarier than being an "Artist Nobody's Heard Of" 
+	* Don't "find yourself" and box yourself in to a persona. Keep striving, keep discovering
+
+**Kill Yourself**
+* Buddhism says that your idea of "you" is an arbitrary mental construction that can trap you, and that we should let go of the idea of "you" - i.e. not give a fuck
+	* 
