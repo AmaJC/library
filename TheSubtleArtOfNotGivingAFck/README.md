@@ -7,6 +7,8 @@
 * [Chapter 5](#chapter-5---you-are-always-choosing)
 * [Chapter 6](#chapter-6---youre-wrong-about-everything-but-so-am-i)
 * [Chapter 7](#chapter-7---failure-is-the-way-forward)
+* [Chapter 8](#chapter-8---the-importance-of-saying-no)
+* [Chapter 9](#chapter-9---...and-then-you-die)
 
 ## Chapter 1 - Don't Try
 > "The world is constantly telling you that the path to a better life is more, more, more—buy more, own more, make more, fuck more, be more. You are constantly bombarded with messages to give a fuck about everything, all the time." (pg. 7)
@@ -294,3 +296,18 @@ Ways to start questioning and doubting yourself, and foster more uncertainty in 
 * Consumer culture teaches us to want more more more. But, more is not always better. We're often happier with less.
 * **Paradox of choice** - the more options we're given, the less satisfied we become with whatever we choose, because we're aware of the other options we're forfeiting
 	* Having too many choices can leave you in a limbo avoiding commitment, out of a fear of making the "wrong" or "imperfect" choice to maximize your happiness
+* Depth vs Breadth of experience
+	* Investing deeply in one person/place/job denies us the breadth of experience, while pursuing a breadth may also deny us the rewards of depth of experience.
+	* When pursuing a wide breadth of experience, each new experience provides diminishing returns
+	* The older you get, the more experienced, and the less significantly each new experience affects you
+	* There is great value in depth of experience and commitment, e.g. investing in significant, genuine, healthy friendships
+
+How commitment increases your freedom
+1. You're no longer distracted by the unimportant and frivolous
+2. Hones your attention and focus, directed towards what makes you most healthy and happy
+3. Makes decision-making easier, removes fear of missing out because of your security in that what you already have is enough
+4. Allows for a focus on highly important goals and achieve a greater degree of success than otherwise
+> "Yes, breadth of experience is likely necessary and desirable when you’re young—after all, you have to go out there and discover what seems worth investing yourself in. But depth is where the gold is buried. And you have to stay committed to something and go deep to dig it up. That’s true in relationships, in a career, in building a great lifestyle—in everything." (pg. 131)
+
+## Chapter 9 - ...And Then You Die
+* M
