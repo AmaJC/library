@@ -4,6 +4,9 @@
 * [Chapter 2](#chapter-2---happiness-is-a-problem)
 * [Chapter 3](#chapter-3---you-are-not-special)
 * [Chapter 4](#chapter-4---the-value-of-suffering)
+* [Chapter 5](#chapter-5---you-are-always-choosing)
+* [Chapter 6](#chapter-6---youre-wrong-about-everything-but-so-am-i)
+* [Chapter 7](#chapter-7---failure-is-the-way-forward)
 
 ## Chapter 1 - Don't Try
 > "The world is constantly telling you that the path to a better life is more, more, more—buy more, own more, make more, fuck more, be more. You are constantly bombarded with messages to give a fuck about everything, all the time." (pg. 7)
@@ -170,4 +173,124 @@ Common values that create unsolvable problems
 
 **Kill Yourself**
 * Buddhism says that your idea of "you" is an arbitrary mental construction that can trap you, and that we should let go of the idea of "you" - i.e. not give a fuck
-	* 
+	* When you believe that your the stupid one that will be laughed at in class, or the one people will mock or ignore, you're telling yourself you're the _exception_. This is a manifestation of narcissism. 
+	* Instead, realize you aren't special. Your problems aren't unique. 
+		* Stop defining ourselves as "uniquely intelligent" or "spectacularly talented" or "especially victimized"
+	* We should define ourselves in the most simple, mundane, ordinary ways - e.g. as a student, a friend, a creator.
+
+**How To Be Less Certain of Yourself**
+Ways to start questioning and doubting yourself, and foster more uncertainty in our lives:
+1. _Question 1: What if I'm wrong?_
+* We're the world's worst observers of ourselves. We often don't realize when we're jealous, acting on our insecurities, angry, etc.
+	* Put "cracks in our armor of uncertainty" by questioning ourselves and how we might be wrong about ourselves
+	* Questioning ourselves can foster humility (instead of arrogant certainty) and compassion (instead of stubborn entitlement)
+* For any change to occur in our lives, we must first realize and accept when we are wrong. 
+2. _Question 2: What would it mean if I were wrong?_
+* The potential implications of our wrongness can often be painful - it forces us to question our values
+> "It is the mark of an educated mind to be able to entertain a thought without accepting it.” (pg. 101)
+ * The ability to evaluate and consider different values without necessarily adopting them is crucial to change in our lives
+3. _Question 3: Would being wrong create a better or worse problem than my current problem, for both myself and others?_
+* Life's problems are endless, so we should be choosing the better problem.
+* By mistrusting our own abilities to determine absolute right and wrong, we foster humility and sustain healthy, happy relationships
+	* This allows us to grow beyond our insecurities by recognizing when we are wrong
+* We often act out on our own insecurities and flawed certainties
+> When it feels like "you versus the world", chances are it's really just "you versus yourself" (pg. 102)
+
+## Chapter 7 - Failure Is The Way Forward
+* Mark starts the chapter sharing about how he started off adult life as a failure - already at rock bottom financially, with the start of the Great Recession
+	* He considers himself fortunate because everyone's biggest fear later in life is to be a failure, and already starting off as a failure makes every other opportunity for failure less scary
+	* Mark learned early on **not** to measure his self-worth by money
+		* He saw his wealthy family make a lot of money but still be miserable, or see broke people still being happy
+		* Therefore, the metric used to measure failure would be to _not_ pursue his own dreams - not a lack of money.
+
+**The Failure/Success Paradox**
+* Improvement at anything is based on thousands of tiny failures 
+* **If someone is better than you at something, it's likely they've failed at it more than you have.**
+* Our habits of avoiding failure
+	* Our education system, which judges our performance and punishes those who don't do well, may contribute to a learned fear of failure
+* We should define goals that we can continuously work on throughout life
+	* A goal like "graduate college" or "buy a house" may drive us in the short-term, but ultimately when complete we lose the problem that drove us to grow
+	* Instead, a goal like "be more authentic in my social life" gives us the ability to grow continuously, with every social interaction as new opportunity presenting its own challenges
+
+**Pain is Part of the Process**
+* Survivors of WWII experienced mass starvation, bombings, torture, etc., but said that their pre-war versions of their selves were "ungrateful for and unappreciative of their loved ones, lazy and consumed by petty problems, entitled to all they’d been given" (pg. 107)
+	* After the war, they felt more confident, more grateful, unfazed by life's trivial pettiness and annoyances
+* Our pain can make us more grounded, stronger, more resilient
+	* Suffering emotional pain is needed to develop greater emotional resilience, a stronger sense of self, increased compassion, etc
+> "You could call it “hitting bottom” or “having an existential crisis.” I prefer to call it “weathering the shitstorm.” (pg. 108)
+* **VCR Question** - like Mark's parents not knowing how to work the VCR, we sometimes sit and stare at our problems and shake our heads, asking "How??"
+	* A VCR question seems difficult to anyone experiencing it, but so simple to anyone else
+	* The answer is simple - just do it, despite the pain. Accept that you really don’t know what the fuck you’re doing, so there's nothing to lose
+
+**The "Do Something" Principle**
+> "Don’t just sit there. Do something. The answers will follow" (pg. 111)
+* Even if you don't know what you're doing, just the simple act of working on it will help you find the right ideas and answers.
+> "Action isn’t just the effect of motivation; it’s also the cause of it." (pg. 112)
+* We assume the flow goes: Emotional Inspiration -> Motivation -> Desirable Action
+* Actually, motivation is an endless loop:
+	* Inspiration -> Motivation -> Action -> Inspiration -> Motivation -> Action -> ...
+	* Our actions create further emotional reactions and inspirations that motivate future actions
+	* We can reorient our mindset to view this chain as:
+	* Action -> Inspiration -> Motivation
+		* If you lack the motivation to make a change, _do something_.
+* The "Do Something" principle changes our standard of success to "merely acting"
+	* Failure seems unimportant when _any_ result is viewed as progress
+	* Inspiration is seen as a reward rather than as a prerequisite
+	* With simply "doing something" as your metric for success, then even failure pushes you forward.
+
+## Chapter 8 - The Importance of Saying No
+* Mark spent 5 years living a nomadic lifestyle, living in 55 countries while making money through his online blog. Now he has settled in New York, with a wife and a home.
+	* Mark says that his life of "freedom" was not inherently meaningful
+	* "Ultimately, the only way to achieve meaning and a sense of importance... is through a _narrowing_ of freedom, a choice of commitment to one place, one belief, or one person." (pg. 116)
+* Mark spent some time in Russia, where he experienced a different culture
+	* Russian culture normalized outright, straightforward bluntness in conversation, which contrasted fake-nice communication common in Anglo culture
+	* In Western culture, there's so much pressure to be liked or to present ourselves well, that people sometimes reconfigure their personality depending on who they're with
+		* Ex: smile and say polite things even when you don't feel like it
+		* Ex: saying white lies to people you disagree with
+
+**Rejection makes your life better**
+* We _need_ to reject some things. There is joy with investing in a single thing after rejecting the alternatives.
+* The act of choosing a value requires rejecting the alternatives
+	* Ex: Choosing to be in a committed relationship could require rejecting hookups
+	* Ex: Choosing to invest in open/honest friendships requires rejecting trashing your friends behind their backs
+* Becoming comfortable with rejection and saying/hearing "no" will improve our relationships and emotional lives by being more honest
+
+**Boundaries**
+* While _Romeo and Juliet_ is often glorified today as the ideal "romance", Shakespeare meant to _satirize_ romance through that story - more of a "do not do this" warning.
+* There are healthy and unhealthy forms of love
+	* Unhealthy romance - people trying to escape their problems, using each other as an escape
+	* Healthy romance - two people acknowledging and addressing their own problems, while supporting each other
+* Two factors are important in determining a healthy/unhealthy relationship	
+	* 1. How well each person in the relationship accepts responsibility
+	* 2. The willingness of each person to both reject and be rejected by their partner
+* *Boundaries* - refers to the delineation between two people's responsibilities for their own problems
+	* Healthy boundaries - take responsibility for your own values, not take responsibility for your partner's values
+	* Poor boundaries - avoid responsibility for your own problems and/or take responsibility for your partner's problems 
+> "People can’t solve your problems for you. And they shouldn’t try, because that won’t make you happy. You can’t solve other people’s problems for them either, because that likewise won’t make them happy." (pg. 123)
+* An unhealthy relationship is one in which you try to solve each other's problems to feel good about themselves
+* A healthy relationship is one in which you solve your own problems to feel good about each other
+* Entitled people expect others to solve their own problems
+	* Many entitled people paint themselves as the victim, expecting someone to save them
+	* Entitled people who take the "blame" for their partner's problems believe that if they can "fix" their partner, they will get the love and appreciation they want
+		* Toxic relationship: victim and the savior - someone who starts fires because it makes them feel important, and someone who puts them out because it makes them feel important
+		* The victim SHOULD say "Look, this is my problem, you don't have to fix it for me. Just support me while I fix it myself."
+		* The savior SHOULD say "Look, you're blaming others for your own problems, solve them yourself"
+* In a healthy relationship:
+	* You may hurt someone's feelings sometimes, but recognize you're ultimately not responsible for determining how others feel
+	* You don't control each other's emotions, but instead each person should support the other in their individual growth and in solving their own problems
+	* "It’s not about giving a fuck about everything your partner gives a fuck about; it’s about giving a fuck about your partner regardless of the fucks he or she gives. That’s unconditional love, baby." (pg. 126)
+
+**How to Build Trust**
+* Without conflict, there is no trust. Conflict exists to show us who is there for us unconditionally
+	* Pain in a relationship allows trust in each other to be cemented, creating greater intimacy
+* Both people must be willing to hear no and say no
+* Trust is necessary to feel loved, because the relationship is meaningless without it
+	* You don't feel truly loved until you trust the love expressed is without special conditions or baggage attached
+	* How to rebuild trust
+		* 1. The trust-breaker admits the bad values that cause the breach in trust and takes responsibility for them
+		* 2. The trust-breaker builds a solid track record of improved performance
+
+**Freedom Through Commitment**
+* Consumer culture teaches us to want more more more. But, more is not always better. We're often happier with less.
+* **Paradox of choice** - the more options we're given, the less satisfied we become with whatever we choose, because we're aware of the other options we're forfeiting
+	* Having too many choices can leave you in a limbo avoiding commitment, out of a fear of making the "wrong" or "imperfect" choice to maximize your happiness
