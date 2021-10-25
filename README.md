@@ -24,6 +24,8 @@ If you have any suggestions or want to discuss any of the books, hit me up on IG
 
 # Ongoing
 
+![31/271](https://progress-bar.dev/11) **[Everything is Fucked](https://www.amazon.com/Untitled-Mark-Manson/dp/0062888439)** by Mark Manson
+
 ![63/142](https://progress-bar.dev/44) **[The Power of Now](https://www.amazon.com/Power-Now-Guide-Spiritual-Enlightenment-ebook/dp/B002361MLA)** by Eckhart Tolle 
 
 **[Merlin](https://www.netflix.com/title/70142436)** on Netflix
