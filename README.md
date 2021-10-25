@@ -3,6 +3,7 @@
 
 
 
+
 # JC's Reading/Watching List
 
 A record for myself, and a resource for others, of all the books, videos, podcasts, movies, etc. that I've gained some knowledge from. 
@@ -23,8 +24,6 @@ If you have any suggestions or want to discuss any of the books, hit me up on IG
 
 # Ongoing
 
-![130/153](https://progress-bar.dev/84) **[The Subtle Art of Not Giving a F*ck](https://www.amazon.com/Subtle-Art-Not-Giving-Counterintuitive/dp/0062457713)** by Mark Manson 
-
 ![63/142](https://progress-bar.dev/44) **[The Power of Now](https://www.amazon.com/Power-Now-Guide-Spiritual-Enlightenment-ebook/dp/B002361MLA)** by Eckhart Tolle 
 
 **[Merlin](https://www.netflix.com/title/70142436)** on Netflix
@@ -32,6 +31,9 @@ If you have any suggestions or want to discuss any of the books, hit me up on IG
 **[A Series of Unfortunate Events](https://www.netflix.com/title/80050008)** on Netflix
 
 # 2021
+
+**[The Subtle Art of Not Giving a F*ck](https://www.amazon.com/Subtle-Art-Not-Giving-Counterintuitive/dp/0062457713)** by Mark Manson
+> _A nontraditional perspective of how we can find happiness in life. This book challenges you to embrace failure as a means for growth, always be willing to be wrong and be less certain of yourself, choose the f*cks that you believe are worth giving, and be conscious of and constantly remind ourselves of our inevitable death. I read this book almost entirely while flying in planes, and its perspectives are so valuable and insightful._
 
 **[TED Talk: Are We In Control of our Own Decisions?](https://www.ted.com/talks/dan_ariely_are_we_in_control_of_our_own_decisions)** by Dan Ariely
 > _Optical illusions are a metaphor for "decision illusions" or "cognitive illusions" in behavioral economics. The person who designs the form at the DMV for organ donations can influence/dictate our behavior/likelihood to accept - it is the illusion of decision. "We pick what was chosen for us". Our minds are susceptible to influences from external forces (e.g. defaults, the options presented to us, etc) - in other words, our decision-making is predictably irrational._

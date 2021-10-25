@@ -310,4 +310,29 @@ How commitment increases your freedom
 > "Yes, breadth of experience is likely necessary and desirable when you’re young—after all, you have to go out there and discover what seems worth investing yourself in. But depth is where the gold is buried. And you have to stay committed to something and go deep to dig it up. That’s true in relationships, in a career, in building a great lifestyle—in everything." (pg. 131)
 
 ## Chapter 9 - ...And Then You Die
-* M
+* In the face of the inevitability of death, there is no reason to ever give in to your fear or embarrassment or shame
+* By avoiding what is painful and uncomfortable, you avoid being alive at all
+* Even though death often scares us, it is death that gives life meaning 
+* _Denial of Death_ by Becker is one of the most influential psychological works and makes two points:
+	* Humans are unique in that we are the only animals that can conceptualize and think about ourselves abstractly (e.g. worrying about our career, think about past mistakes/regret, contemplate the future, etc)
+		* This makes us aware of the inevitability of our deaths
+	* We have 2 "selves" - (1) our physical self that eats/sleeps/poops, and (2) our conceptual self - our identity and how we see ourselves
+		* **Immortality project** - our attempts to get our conceptual self to last past our physical death (e.g. work to get our names on statues, or have children that we leave our impact on so we are remembered/revered/idolized)
+		* "All the meaning of our life is shaped by this innate desire to never truly die" (pg. 137)
+		* Death terror creeps back when the conceptual self outliving the physical self is not possible or likely, and all meaning is lost
+> "Once we become comfortable with the fact of our own death—the root terror, the underlying anxiety motivating all of life’s frivolous ambitions—we can then choose our values more freely, unrestrained by the illogical quest for immortality" (pg. 138)
+* Conclusion: people's immortality projects are the problem, not the solution. The bitter antidote is to come to terms with the inevitability of our own death
+
+**The Sunny Side of Death**
+* Keep death in mind at all times, to appreciate life more and stay humble in the face of adversity 
+* “The fear of death follows from the fear of life. A man who lives fully is prepared to die at any time.” - Mark Twain
+> "Confronting the reality of our own mortality is important because it obliterates all the crappy, fragile, superficial values in life" (pg. 142)
+* People chase after money, fame, validation - but death confronts us with the question of "What is your legacy? What mark will you have made? How will you have changed the world for the better?"
+* Without acknowledging the ever-present gaze of death, the superficial will appear important, and the important will appear superficial.
+	* Because death is the only thing we know for certain, it should be our compass that orients our values and decisions
+	* Happiness comes from caring about something greater than yourself - believing that you are a contributing component of something greater 
+* People in the modern world often feel entitled - making us believe that we are the center of the universe, that we deserve that society caters to our own feelings
+* Whether you realize it or not, you are great already. Not because of superficial things (e.g. early graduation, career, etc) - but because "in the face of endless confusion and certain death, you continue to choose what to give a fuck about and what not to." (pg. 144)
+* "We’re all going to die, all of us. What a circus! That alone should make us love each other, but it doesn’t. We are terrorized and flattened by life’s trivialities; we are eaten up by nothing.”
+* The primary lesson of coming to terms with our deaths is that **thre is nothing to be afraid of.**
+	* Acceptance of our death, understanding of our own fragility, makes it easier to confront your own entitlement, accepting failures, embracing rejection
