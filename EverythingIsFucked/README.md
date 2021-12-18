@@ -83,5 +83,28 @@ To build and maintain hope, we need:
 		* Anger - desire to equalize through force and aggression
 		* Happiness - feeling liberated from pain
 		* Guilt - feeling that you deserve some pain that never arrived
-3. a
-4. 
+	* Equalization has been codified throughout the ages, e.g. "an eye for an eye, and a tooth for a tooth", or the Golden Rule "Do unto others what you would have done unto you"
+		* In evolutionary biology, also known as "reciprocal altruism"
+		* In game theory, also known as "tit for tat" strategy
+	* Newton's First Law generates our sense of morality, perceptions of fairness, and is the operating system of the Feeling Brain. Feeling Brain deems painful experiences as undesirable and inferior, and experiences that relieve pain as superior and desirable
+	* The Thinking Brain makes lateral connections between events (sameness, contrast, cause/effect, etc)
+	* The Feeling Brain makes hierarchical connections between events (better/worse, more/less desirable, morally superior/inferior, etc)
+		* Growth is being able to rearrange our value hierarchy
+2. Our self worth equals the sum of our emotions over time
+	* "When moral gaps persist for a long time, they normalize - become our default expectation." - if equalization seems impossible, our Feeling Brain may accept defeat and judge itself to be inferior.	
+	* A surrender to persisting moral gaps and acceptance of an inherent inferiority is shame or low self-worth. The reverse is true - being given stuff without earning it can cause us to believe ourselves inherently superior than actually true
+	* Both high and low self worth are two sides of the same counterfeit coin - they make us believe we are special, separate from the world
+		* Both versions are narcissistic and both sides believe the world should make exceptions and cater to their values and feelings over others'
+		* Narcissists oscillate between feelings of superiority or inferiority
+		* If you're insecure about yourself, you can find the oscillation of delusional feelings of superiority and inferiority within.
+	* "Self worth is an illusion." (pg. 61)
+		* We all possess a degree of narcissism because everything we ever know or learn is through experiences that are all centered around us - we are at the center of everything we experience
+		* Human beings all require a level of built-in narcissism because narcissism is our last line of defense against the Uncomfortable Truth - without the perpetual lie we tell ourselves via narcissism, we would lose hope
+3. Your identity will stay your identity until a new experience acts against it
+	* We construct narratives to explain things in life - our narratives about ourselves and the world are about (1) something or someone's value, and (2) whether that something/someone deserves that value
+		* All narratives are constructed as:
+		* Good or bad thing happens to person/thing, and he/she/it does or doesn't deserve it
+#### Emotional Gravity
+* We attract those who value what we value and repel those whose values are contrary to our own
+* The stronger we hold a value, the strong its gravity and the tighter its orbit - more difficult for outside forces to disrupt it
+> "All people are more the same than they are different. We all mostly want the same things out of life. But those slight differences generate emotion, and and emotion generates a sense of importance. Therefore, we come to perceive our differences as disproportionately more important than our similarities. And this is the true tragedy of man. That we are doomed to perpetual conflict over the slight difference." (pg. 72)

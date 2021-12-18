@@ -14,7 +14,7 @@ My goals:
 1. Document key takeaways from each book, both to commit the knowledge to memory and to share the knowledge to my future self and others.
 2. Record my progress over time, track my ongoing goals, and actively continue learning!
 
-If you have any suggestions or want to discuss any of the books, hit me up on IG, [@kingjcdy](https://www.instagram.com/kingjcdy/)!
+If you have any suggestions or want to discuss any of the books, hit me up on IG, [@jcdythatsme](https://www.instagram.com/jcdythatsme/)!
 
 * [Ongoing](#ongoing)
 * [Completed - 2021](#2021)
@@ -24,7 +24,7 @@ If you have any suggestions or want to discuss any of the books, hit me up on IG
 
 # Ongoing
 
-![31/271](https://progress-bar.dev/11) **[Everything is Fucked](https://www.amazon.com/Untitled-Mark-Manson/dp/0062888439)** by Mark Manson
+![74/271](https://progress-bar.dev/27) **[Everything is Fucked](https://www.amazon.com/Untitled-Mark-Manson/dp/0062888439)** by Mark Manson
 
 ![63/142](https://progress-bar.dev/44) **[The Power of Now](https://www.amazon.com/Power-Now-Guide-Spiritual-Enlightenment-ebook/dp/B002361MLA)** by Eckhart Tolle 
 
