@@ -24,7 +24,7 @@ If you have any suggestions or want to discuss any of the books, hit me up on IG
 
 # Ongoing
 
-![74/271](https://progress-bar.dev/27) **[Everything is Fucked](https://www.amazon.com/Untitled-Mark-Manson/dp/0062888439)** by Mark Manson
+![108/271](https://progress-bar.dev/40) **[Everything is Fucked](https://www.amazon.com/Untitled-Mark-Manson/dp/0062888439)** by Mark Manson
 
 ![63/142](https://progress-bar.dev/44) **[The Power of Now](https://www.amazon.com/Power-Now-Guide-Spiritual-Enlightenment-ebook/dp/B002361MLA)** by Eckhart Tolle 
 
