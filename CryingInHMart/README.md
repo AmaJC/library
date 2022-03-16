@@ -34,6 +34,7 @@
 
 ## Chapter 3 - Double Lid
 > "Like food, beauty was an integral part of Korean culture" (pg. 32)  
+> “‘Yeppeu,’ or pretty was frequently employed as a synonym for good and well-behaved, and this fusion of moral and aesthetic approval was an early introduction to the value of beauty and the rewards it had in store” (p. 33)
 - Korean beauty standards - double eyelid, small face, white skin  
 - Highest rates of cosmetic surgery  
 - Likely influenced by how in language "yeppeu" - pretty, was frequently employed as a synonym for good or well behaved.  
