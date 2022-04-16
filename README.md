@@ -1,9 +1,4 @@
 
-
-
-
-
-
 # JC's Reading/Watching List
 
 A record for myself, and a resource for others, of all the books, videos, podcasts, movies, etc. that I've gained some knowledge from. 
@@ -28,9 +23,9 @@ If you have any suggestions or want to discuss any of the books, hit me up on IG
 
 ![63/142](https://progress-bar.dev/44) **[The Power of Now](https://www.amazon.com/Power-Now-Guide-Spiritual-Enlightenment-ebook/dp/B002361MLA)** by Eckhart Tolle 
 
-**[Merlin](https://www.netflix.com/title/70142436)** on Netflix
-
-**[A Series of Unfortunate Events](https://www.netflix.com/title/80050008)** on Netflix
+# 2022
+**[Crying in H Mart](https://www.amazon.com/Crying-Mart-Memoir-Michelle-Zauner/dp/0525657746)** by Michelle Zauner
+> _A memoir of family, culture, food._
 
 # 2021
 
@@ -45,6 +40,10 @@ If you have any suggestions or want to discuss any of the books, hit me up on IG
 
 **[Alice in Borderland](https://www.netflix.com/title/80200575)** on Netflix
 > _Watched season 1 with the roommats as part of our weekly movie afternoons. The show is thrilling, unpredictable, and full of uncovered mysteries, but it ended on a cliffhanger so I'll have to wait til season 2 to be released for (hopefully) some closure. I've been inspired to learn Japanese on Duolingo, Lingodeer, and YouTube for fun!_
+
+**[Merlin](https://www.netflix.com/title/70142436)** on Netflix
+
+**[A Series of Unfortunate Events](https://www.netflix.com/title/80050008)** on Netflix
 
 # 2020
 

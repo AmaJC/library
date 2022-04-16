@@ -1,3 +1,4 @@
+
 # Crying in H Mart - Notes
 
 * [Chapter 1 - Crying in H Mart](#chapter-1---crying-in-h-mart)
@@ -10,6 +11,16 @@
 * [Chapter 8 - Unni](#chapter-8---unni)
 * [Chapter 9 - Where Are We Going?](#chapter-9---where-are-we-going)
 * [Chapter 10 - Living and Dying](#chapter-10---living-and-dying)
+* [Chapter 11 - What Procellous Awesomeness Does Not In You Abound?](#chapter-11---what-procellous-awesomeness-does-not-in-you-abound)
+* [Chapter 12 - Law and Order](#chapter-12---law-and-order)
+* [Chapter 13 - A Heavy Hand](#chapter-13---a-heavy-hand)
+* [Chapter 14 - Lovely](#chapter-14---lovely)
+* [Chapter 15 - My Heart Will Go On](#chapter-15---my-heart-will-go-on)
+* [Chapter 16 - Jatjuk](#chapter-16---jatjuk)
+* [Chapter 17 - Little Axe](#chapter-17---little-axe)
+* [Chapter 18 - Maangchi and Me](#chapter-18---maangchi-and-me)
+* [Chapter 19 - Kimchi Fridge](#chapter-19---kimchi-fridge)
+* [Chapter 20 - Coffee Hanjan](#chapter-20---coffee-hanjan)
 
 ## Chapter 1 - Crying in H Mart
 - H Mart is a supermarket that specializes in Asian food  
@@ -125,3 +136,88 @@
 - "Even as she was dying, my mother offered me solace, her instinct to nurture..."(pg. 118)
 
 ## Chapter 10 - Living and Dying
+- Michelle flew to Korea where she met with her parents, and her mom wasn't doing well after their flight  
+	- They brought Michelle's mom back to the hospital, where she had many issues like edema and herpes and mouth sores  
+	- Michelle's Dad would probably marry another Asian woman and drift apart, and Michelle predicted a struggle to coexist  
+> "It used to be so clear to me, the difference between living and dying" (pg. 125)  
+	- Michelle's mom was bedridden, unable to walk, eat, pass bowels, breathe independently - it wasn't really 'living'  
+- Michelle called Peter and said to get married before her mom died
+	- Peter agreed and they found a wedding planner to get it done in 3 weeks  
+- "It'd be impossible to feel beautiful without her approval" (pg. 127)  
+- "It felt like the perfect way to shed light on the darkest of situations" (pg. 129)
+
+## Chapter 11 - What Procellous Awesomeness Does Not In You Abound?
+- Early on, Peter friendzoned Michelle but after he got attacked and she brought him flowers at the hospital, what changed is that he realized he reciprocated feelings for her  
+- Peter proposed to Michelle and they started planning the wedding logistics, and Michelle's mom was involved  
+- Kye had Michelle's mom properly convert to Christianity  
+- Michelle's mom believed in reincarnation and wanted to come back as a tree, humble and still. Michele found comfort in that  
+- Michelle was worried that Peter's family would be upset that she pressured him into a "slapdash wedding" but that concern disappeared when they arrived  
+- Peter's mom is very motherly and loving  
+- On the day of the wedding, Michelle asked her mom how she looked, anxious for approval  
+- "'Beautiful', she beamed at last, tears collecting in her eyes..." (pg. 141)  
+> "There was no one in the world as critical or could make me feel as hideous as my mother, but there was no one, not even Peter, who ever made me feel as beautiful." (pg. 141)  
+  
+Michelle's wedding vows:  
+- "I never thought I was going to get married, but having witnessed for the past 6 months what it means to keep the promise to be there for someone in sickness and health, I find myself here, understanding." (pg. 143)  
+> "I talked about how love was an action... a response roused by unplanned moments and small gestures, an inconvenience in someone else's favor. How I felt it most when he drove up to New York at 3am just to hold me.. after i'd discovered my mother was sick... And though I wished our marriage could begin under more ideal circumstances, it had been these very trials that had assured me he was everything I needed to brave the future that lay ahead." (pg. 143)
+
+## Chapter 12 - Law and Order
+- Michelle and her mom watched a show where a usually stoic woman was brought to tears when asked about her mother's untimely death  
+- Michelle and her mom cried at this, imagining this is the pain Michelle will have with her for the rest of her life  
+- just like when Michelle was a child, she clung to her mother and they weeped together  
+- Kye left in anger
+
+## Chapter 13 - A Heavy Hand
+- Michelle's Dad said "I know you wish it was me. I wish it was me too" (pg. 151)  
+- Michelle's Dad had used needles, was smoking since age nine, drank nightly, and has high cholesterol  
+- "He was desperate to escape this excruciating ache by any means, and liable to leave me behind" (pg. 151)  
+- Michelle's mom died and would be cremated. Her last words were "pain".
+
+## Chapter 14 - Lovely
+- Michelle's mom loved the adjective "lovely" and used it for the headstone epitaph  
+- "To be a loving mother was to be known for a service, but to be a lovely mother was to possess a charm all your own." (pg. 158)  
+- Michelle made doenjang jjigae for Nami and Seong Young for breakfast and felt "useful, happy, that after all the years the two of them had looked after me, I could do this one small thing for them" (pg. 165)  
+> "There was a part of me that felt or maybe hoped that after my mother died I had absorbed her in some way that she was a part of me now." (pg. 167)  
+- Michelle found comfort in seeing her mother's art, imaging her painting with friends before her pain and suffering  
+- This is also the first time in the book Michelle addresses her mom by her first name 'Chongmi'  
+- Michelle discusses how she and her mom were on "opposite sides of a fault line - generational, cultural, linguistic" (pg. 169) and they were just beginning to appreciate their differences and find commonalities and understand each other before her mother died
+
+## Chapter 15 - My Heart Will Go On
+- Two weeks after the funeral, Michelle and her father go to Vietnam for vacation, since their house felt suffocating  
+- Michelle and her father fight at a restaurant and her father says her mother and him always talked about how cruelly Michelle treated them growing up  
+- Michelle goes to a bar to avoid her father and meets Quing, who encourages her to sing onstage  
+- Michelle sings a Carpenters song and Quing sings My Heart Will Go On
+
+## Chapter 16 - Jatjuk
+> "We came to Vietnam in search of healing, to emerge closer to each other in our grief, but we returned just as damaged and separate as ever." (pg. 182)  
+- Michelle's Dad got in a car accident, and she wondered if it was an intentional  
+- Michelle found her mom's hoard of stuff and cried when she saw the baby shoes, "I thought of the foresight a mother must have to preserve this kind of thing, the shoes of her baby, for her baby's baby someday. A baby she'd never get to meet." (pg. 186)  
+- Michelle recreated jatjuk, pine nut porridge, which is what Michelle's mom would eat to recover from her illness  
+- "This plain porridge was the first dish to make me feel full. (pg. 190)
+
+## Chapter 17 - Little Axe
+- Michelle worked at a pizza place as a cook  
+> "I wanted to stay as busy as possible. I wanted to work my body as hard as it could go so there was no time to feel sorry for myself" (pg. 193)  
+- Nami's fortune teller described her as a giving tree, destined to shelter and to nurture, but there was a little axe slowly striking at her trunk, wearing her away  
+- Michelle and Nami would try to converse but struggled due to the language barrier, and they relied on Google translate  
+- Michelle regretted not prioritizing going to Korean school and learning, because she felt stupid not being able to talk to Nami  
+> "I tried to explain to Nami how much it meant to me to share food with her, to hear these stories. How I'd been trying to reconnect with memories of my mother through food. How Kye made me feel like I wasn't a real Korean. What I was searching for when I cooked... the psychological undoing of what I felt had been my failures as a caretaker, the preservation of a culture that once felt so ingrained in me but now felt threatened." (pg. 204)
+
+## Chapter 18 - Maangchi and Me
+- Michelle has recurring dreams about her mom, and wonders if that's how her mother visits her, and why she always appears sick in her dreams - "Had I forgotten her when she was beautiful?" (pg. 210)  
+- Michelle finds a job in NYC and lived with Peter in Williamsburg after their honeymoon  
+- Michelle struggled with anxiety relapses about her mom and tries therapy, but it doesn't help and she decides instead to find alternative forms of self care  
+- Maangchi, the YouTuber that cooks Korean food, is her new form of therapy as she cooks after work daily  
+- Michelle uses the process of cooking kimchi as a form of therapy
+
+## Chapter 19 - Kimchi Fridge
+- Michelle's father puts the childhood home up for sale  
+- Michelle finds old family photographs after the kimchi fridge is shipped to Peter's family home in Philadelphia  
+- Michelle reminisces and sees all the photos her mom captured of her  
+- "She was my champion, she was my archive. She had taken the utmost care to preserve the evidence of my existence and growth, capturing me in images, saving all my documents and possessions... She observed me with unparalleled interest, inexhaustible devotion." (pg. 223)  
+- Michelle analogizes kimchi fermentation as the transformation of what could be moldy cabbage into a new life, with her memories and culture - not to die with her, but to be passed on and imparted
+
+## Chapter 20 - Coffee Hanjan
+- Japanese Breakfast becomes more popular and Michelle's able to pursue music full time for the first time in her adult life  
+- Her music touched Asian Americans, mixed kids and people who lost their parents  
+"Conscious that the success we experience revolved around her death, that the songs I sang memorialized her, I wish more than anything and through all contradiction that she could be there." (pg. 233)
