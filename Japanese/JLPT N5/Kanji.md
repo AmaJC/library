@@ -1,9 +1,19 @@
+[JLPT N5 Kanji List](https://www.jlptstudy.net/N5/?kanji-list)
+
 Set 1: 2/6/2023
 1. 日
 2. 一
-3. 国
-4. 人
-5. 年
+    * Pronunciation: イチ, イツ, ひと-
+    * 一 【イチ】 one, 1, best, first, foremost, beginning, start
+      * 第一: first, foremost
+      * 一度: once, one time
+      * 一番: number one
+      * 一月: January
+    * 一 【イツ】 one, same (mind, path, etc.)
+    * 一つ 【ひとつ】 one, for one thing, only,
+4. 国
+5. 人
+6. 年
 
 Set 1: 2/7/2023
 1. 大
