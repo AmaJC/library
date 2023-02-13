@@ -2,6 +2,9 @@
 
 Set 1: 2/6/2023
 1. 日
+    * Pronunciation: ニチ, ジツ, ひ, -び, -か
+    * 日 【ニチ】 Sunday, nth day (of the month), counter for days
+    * 日 【ひ】 day, days, sun, sunshine, sunlight
 2. 一
     * Pronunciation: イチ, イツ, ひと-
     * 一 【イチ】 one, 1, best, first, foremost, beginning, start
@@ -11,9 +14,11 @@ Set 1: 2/6/2023
       * 一月: January
     * 一 【イツ】 one, same (mind, path, etc.)
     * 一つ 【ひとつ】 one, for one thing, only,
-4. 国
-5. 人
-6. 年
+3. 国
+    * Pronunciation: コク, くに
+    *  国 【くに】
+4. 人
+5. 年
 
 Set 1: 2/7/2023
 1. 大
