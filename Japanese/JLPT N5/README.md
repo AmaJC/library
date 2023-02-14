@@ -15,6 +15,7 @@ Study goals take inspiration from TokuyuuTV's ["How I became fluent in Japanese 
 
 ## Vocabulary
 * Anki - Pass JLPT N5 Vocabulary Deck
+* Pass JLPT
 
 ## Grammar
 * [Tae Kim's Guide to Japanese Grammar](http://guidetojapanese.org/learn/grammar)
@@ -27,3 +28,4 @@ Study goals take inspiration from TokuyuuTV's ["How I became fluent in Japanese 
 # Tools
 * Kanji Map (https://thekanjimap.com/)
 * Jisho Japanese English dictionary (https://jisho.org/)
+* JLPT Guide (http://www.passjapanesetest.com/)

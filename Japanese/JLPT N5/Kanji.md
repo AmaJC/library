@@ -1,6 +1,6 @@
 [JLPT N5 Kanji List](https://www.jlptstudy.net/N5/?kanji-list)
 
-Set 1: 2/6/2023
+Set 1A
 1. 日
     * Pronunciation: ニチ, ジツ, ひ, -び, -か
     * 日 【ニチ】 Sunday, nth day (of the month), counter for days
@@ -20,49 +20,49 @@ Set 1: 2/6/2023
 4. 人
 5. 年
 
-Set 1: 2/7/2023
+Set 1B
 1. 大
 2. 十
 3. 二
 4. 本
 5. 中
 
-Set 2: 2/8/2023
+Set 2A
 1. 長
 2. 出
 3. 三
 4. 時
 5. 行
 
-Set 2: 2/9/2023
+Set 2B
 1. 見
 2. 月
 3. 分
 4. 後
 5. 前
 
-Set 3: 2/10/2023
+Set 3A
 1. 生
 2. 五
 3. 間
 4. 上
 5. 東
 
-Set 3: 2/11/2023
+Set 3B
 1. 四
 2. 今
 3. 金
 4. 九
 5. 入
 
-Set 4: 2/12/2023
+Set 4A
 1. 学
 2. 高
 3. 円
 4. 子
 5. 外
 
-Set 4: 2/13/2023
+Set 4B
 1. 八
 2. 六
 3. 下
