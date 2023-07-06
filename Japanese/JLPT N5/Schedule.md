@@ -78,7 +78,7 @@ Week 5 (3/26-3/31):
 * Vocabulary:
 * Kanji:
 
-# April 2023
+# July 2023
 
 | Sun  | Mon  | Tue  | Wed  | Thu  | Fri  | Sat  |
 | ---- | ---- | ---- | ---- | ---- | ---- | ---- |
@@ -87,4 +87,15 @@ Week 5 (3/26-3/31):
 | 9    | 10   | 11   | 12   | 13   | 14   | 15   |
 | 16   | 17   | 18   | 19   | 20   | 21   | 22   |
 | 23   | 24   | 25   | 26   | 27   | 28   | 29   |
-| 30   |      |      |      |      |      |      |
+| 30   |  31  |      |      |      |      |      |
+
+Week 1 (7/5-7/8):
+* Reading:
+  * Genki Lesson 1
+* Grammar:
+  * [Tae Kim's Guide](http://guidetojapanese.org/learn/grammar)
+    * Writing Systems and Pronunciation
+* Vocabulary:
+  * N/A
+* Kanji: "Kanji Study" app
+  * N/A
