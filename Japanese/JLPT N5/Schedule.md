@@ -92,9 +92,12 @@ Week 5 (3/26-3/31):
 Week 1 (7/5-7/8):
 * Reading:
   * Genki Lesson 1
+  * Start Genki Lesson 2
 * Grammar:
   * [Tae Kim's Guide](http://guidetojapanese.org/learn/grammar)
-    * Writing Systems and Pronunciation
+    * Writing Systems and Pronunciation (Hiragana, Katakana, Kanji)
+    * State of being
+    * Topic Particles
 * Vocabulary:
   * N/A
 * Kanji: "Kanji Study" app
