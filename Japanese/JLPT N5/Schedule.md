@@ -54,30 +54,6 @@ Week 1 (3/1-3/4):
 * Kanji:
   * Review JLPT N5 Kanji Phrases (then sentences)
 
-Week 2 (3/5-3/11):
-* Reading:
-* Grammar:
-* Vocabulary:
-* Kanji:
-
-Week 3 (3/12-3/18):
-* Reading:
-* Grammar:
-* Vocabulary:
-* Kanji:
-
-Week 4 (3/19-3/25):
-* Reading:
-* Grammar:
-* Vocabulary:
-* Kanji:
-
-Week 5 (3/26-3/31):
-* Reading:
-* Grammar:
-* Vocabulary:
-* Kanji:
-
 # July 2023
 
 | Sun  | Mon  | Tue  | Wed  | Thu  | Fri  | Sat  |
@@ -98,6 +74,33 @@ Week 1 (7/5-7/8):
     * Writing Systems and Pronunciation (Hiragana, Katakana, Kanji)
     * State of being
     * Topic Particles
+* Vocabulary:
+  * N/A
+* Kanji: "Kanji Study" app
+  * N/A
+
+Week 2 (7/9-7/15):
+* Reading:
+  * Genki Lesson 2
+  * Genki Lesson 3
+* Grammar:
+  * [Tae Kim's Guide](http://guidetojapanese.org/learn/grammar)
+    * Topic Particles (continued)
+* Vocabulary:
+  * N/A
+* Kanji: "Kanji Study" app
+  * N/A
+
+Week 3 (7/16-7/22):
+* Reading:
+  * Genki Lesson 4
+  * Genki Lesson 5
+* Grammar:
+  * [Tae Kim's Guide](http://guidetojapanese.org/learn/grammar)
+    * Addressing People
+    * Sentence-Ending Particles
+    * Adjectives
+    * Male/Female Speech
 * Vocabulary:
   * N/A
 * Kanji: "Kanji Study" app
