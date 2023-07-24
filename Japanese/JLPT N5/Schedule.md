@@ -94,13 +94,22 @@ Week 2 (7/9-7/15):
 Week 3 (7/16-7/22):
 * Reading:
   * Genki Lesson 4
+* Grammar:
+  * N/A
+* Vocabulary:
+  * N/A
+* Kanji: "Kanji Study" app
+  * N/A
+
+Week 4 (7/23-7/29):
+* Reading:
+  * Finish Genki Lesson 4
   * Genki Lesson 5
+  * Genki Lesson 6
 * Grammar:
   * [Tae Kim's Guide](http://guidetojapanese.org/learn/grammar)
-    * Addressing People
-    * Sentence-Ending Particles
-    * Adjectives
-    * Male/Female Speech
+    * Chapter 3.1 - 3.6
+  * [JLPT Sensei: N5 Grammar List](https://jlptsensei.com/jlpt-n5-grammar-list/)
 * Vocabulary:
   * N/A
 * Kanji: "Kanji Study" app
