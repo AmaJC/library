@@ -12,6 +12,7 @@ My goals:
 If you have any suggestions or want to discuss any of the books, hit me up on IG, [@jcdythatsme](https://www.instagram.com/jcdythatsme/)!
 
 * [Ongoing](#ongoing)
+* [Completed - 2022](#2022)
 * [Completed - 2021](#2021)
 * [Completed - 2020](#2020)
 * [Completed - 2019](#2019) 
@@ -19,13 +20,45 @@ If you have any suggestions or want to discuss any of the books, hit me up on IG
 
 # Ongoing
 
-![108/271](https://progress-bar.dev/40) **[Everything is Fucked](https://www.amazon.com/Untitled-Mark-Manson/dp/0062888439)** by Mark Manson
+**[Harry Potter and the Goblet of Fire](https://www.amazon.com/Harry-Potter-Goblet-Fire-Book/dp/0439139597)** by JK Rowling
+> _Book 4 of 7._
 
-![63/142](https://progress-bar.dev/44) **[The Power of Now](https://www.amazon.com/Power-Now-Guide-Spiritual-Enlightenment-ebook/dp/B002361MLA)** by Eckhart Tolle 
+
+# 2023
+**[Atomic Habits](https://www.amazon.com/Atomic-Habits-Proven-Build-Break/dp/0735211299)** by James Clear
+> _A practical guide on how to establish good habits and break bad ones._
+
+**[Harry Potter and the Sorcerer's Stone](https://www.amazon.com/Harry-Potter-Sorcerers-Stone-Rowling/dp/059035342X)** by JK Rowling
+> _Finally living out the parts of my childhood that I never got a chance to experience by starting to read the Harry Potter series for the first time! Book 1 of 7._
+
+**[Harry Potter and the Chamber of Secrets](https://www.amazon.com/Harry-Potter-Chamber-Secrets-Rowling/dp/0439064872)** by JK Rowling
+> _Book 2 of 7._
+
+**[Harry Potter and the Prisoner of Azkaban](https://www.amazon.com/Harry-Potter-Prisoner-Azkaban-Rowling/dp/0439136350)** by JK Rowling
+> _Book 3 of 7._
+
+**[Genki 1](https://www.amazon.com/Genki-Vol-1-Textbook-3e-ed/dp/4789017303/)** - a Japanese language textbook
+> _Preparation for the Japanese Language Proficiency Test (JLPT N5). Completed lessons 1-7._
+
+**[Call Me by Your Name](https://www.netflix.com/title/80169498)** on Netflix
+> _Set in Northern Italy, this movie is about a friendship, or something more than a friendship, between Elio and Oliver. Elio, to me, embodies a carefree, naive, and unrestrained willingness to love. Oliver embodies someone who has the capacity to love yet he constrains himself due to societal norms, family expectations, and probably his own internalized homophobia influencing his vision for his own life. I see elements myself in both of them, and while the plot confused me at first, further analysis after watching the movie in its entirety made me fall more and more in love with this masterpiece._
+
+**[Alice in Borderland](https://www.netflix.com/title/80200575)** on Netflix
+> _Watched season 2 with Ashley!_
+
+**[Aladdin](https://aladdinthemusical.com)** on Broadway
+> _Watched with AD and Ashley!_
+
+**[Shucked](https://playbill.com/production/shucked-broadway-nederlander-theatre-2023)** on Broadway
+> _Watched with Tim Cruz!_
+
 
 # 2022
 **[Crying in H Mart](https://www.amazon.com/Crying-Mart-Memoir-Michelle-Zauner/dp/0525657746)** by Michelle Zauner
-> _A memoir of family, culture, food._
+> _A memoir of family, culture, food. Read with the NYC SAL Book Club._
+
+**[Klara and the Sun](https://www.amazon.com/Klara-Sun-novel-Kazuo-Ishiguro/dp/059331817X)** by Kazuo Ishiguro
+> _A story about a robot named Klara discovering what it means to be human. Read with the NYC SAL Book Club._
 
 # 2021
 
@@ -60,6 +93,8 @@ If you have any suggestions or want to discuss any of the books, hit me up on IG
 > _Read a few pages of this book daily as part of my commute to work, the spring semester I started attending the Gracepoint fellowship for a time while I still lived at Berkeley._
 
 # Upcoming
+
+**[A Little Life](https://www.amazon.com/Little-Life-Hanya-Yanagihara/dp/0804172706/)** by Hanya Yanagihara
 
 **[Born a Crime](https://www.amazon.com/Born-Crime-Stories-African-Childhood-ebook/dp/B01DHWACVY)** by Trevor Noah
 
