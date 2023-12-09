@@ -52,6 +52,9 @@ If you have any suggestions or want to discuss any of the books, hit me up on IG
 **[Shucked](https://playbill.com/production/shucked-broadway-nederlander-theatre-2023)** on Broadway
 > _Watched with Tim Cruz!_
 
+**[Isle of Dogs](https://www.imdb.com/title/tt5104604/)** on Disney+
+> _Wes Anderson's Oscar-nominated stop-motion animation film. Set in a fictional city in Japan, the mayor has banished dogs to "Trash Island" - an island garbage dump. The story revolves around a boy that comes to the island in search of his dog. We follow him and a group of other dogs who were banished to the island in a series of impressive miniature scenes which were so artfully created and designed (including the famous sushi making scene), comedic moments, and emotionally moving scenes as well._
+
 
 # 2022
 **[Crying in H Mart](https://www.amazon.com/Crying-Mart-Memoir-Michelle-Zauner/dp/0525657746)** by Michelle Zauner
