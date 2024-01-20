@@ -12,6 +12,7 @@ My goals:
 If you have any suggestions or want to discuss any of the books, hit me up on IG, [@jcdythatsme](https://www.instagram.com/jcdythatsme/)!
 
 * [Ongoing](#ongoing)
+* [Completed - 2023](#2023)
 * [Completed - 2022](#2022)
 * [Completed - 2021](#2021)
 * [Completed - 2020](#2020)
@@ -19,6 +20,9 @@ If you have any suggestions or want to discuss any of the books, hit me up on IG
 * [Upcoming](#upcoming)
 
 # Ongoing
+
+**[A Little Life](https://www.amazon.com/Little-Life-Novel-Hanya-Yanagihara/dp/0385539258)** by Hanya Yanagihara 
+> _A story of friends in New York City._
 
 **[Harry Potter and the Goblet of Fire](https://www.amazon.com/Harry-Potter-Goblet-Fire-Book/dp/0439139597)** by JK Rowling
 > _Book 4 of 7._
